@@ -1,8 +1,8 @@
 
 # Who am I
 
-* I was born in Venezuela but moved to Algarve when I was 13.
-* I have a PhD in Neuroscience but have no intention of staying in academia.
+* I was born in Saskatchewan but moved to Algarve when I was 13.
+* I have a PhD in Linguistics but have no intention of staying in academia.
 * I have some experience analyzing data from my own experiments but no formal training whatsoever.
 
 # Why am I here

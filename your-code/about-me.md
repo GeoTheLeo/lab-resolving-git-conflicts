@@ -12,6 +12,6 @@
 
 # What will I do after the course?
 
-* Would love to get into the sports industry.
+* Would love to get into Edutainment, Entertainment - almost anything not Insurance.
 * I will look for patterns in data where people are not even looking.
-* To enjoy myself.
+* To enjoy myself and eat pizza, drink good bier.
